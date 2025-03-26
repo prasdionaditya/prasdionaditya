@@ -1,5 +1,5 @@
-# 💫 About Me:
-👋 HellooOoOOoOo... I’m @prasdionaditya!<br>🌊 I’m interested in software development 📱, graphic design 🎨, and photography 📸.<br>🌱 I’m currently exploring every single programming languages i found, so i'm currently not focusing on one specific language.<br>👀 I’m looking to collaborate on any project, pls include meeee i wanna learn and make something useful!<br>⚡ Fun fact: i'm a die-hard Billie Eilish stan 👩🏻‍🎤, i play guitar (still suck) 🎸, i brush my teeth with my non-dominant hand 🪥, i sing a lot 🎤, i love collecting self-improvement books (i barely read them) 📕.<br>📫 Hit me up on Email (prasdionaditya@gmail.com) if you wanna collaborate or insta (@prasdionaditya) if you're just interested in me :D
+# 🌟 Get to Know Me!
+👋 HellooOoOOoOo... I’m Dion!<br>🌊 I’m interested in software development 📱, graphic design 🎨, and photography 📸.<br>🌱 I’m currently exploring every single programming languages i found, so i'm currently not focusing on one specific language.<br>👀 I’m looking to collaborate on any project, pls include meeee i wanna learn and make something useful!<br>⚡ Fun fact: i'm a die-hard Billie Eilish stan 👩🏻‍🎤, i play guitar (still suck) 🎸, i brush my teeth with my non-dominant hand 🪥, i sing a lot 🎤, i love collecting self-improvement books (i barely read them) 📕.<br>📫 Hit me up on Email (prasdionaditya@gmail.com) if you wanna collaborate or insta (@prasdionaditya) if you're just interested in me :D
 
 
 ## 🌐 Socials:
